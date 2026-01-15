@@ -8,7 +8,7 @@ Fun fact: I work at a pizzeria. The place is called Mootz and their pizza dough 
 
 **Workstyle**
 
-I can work in nearly any environment or condition for periods of time that would be considered inhuman to some. Most of my Air Force career was spent jammed into a flying metal tube for "intercontinental travel" amounts of time on a daily basis. Checklists have an important place in my life and if there is not one in existence prior to me starting a process there will be one on that process when I am done. That being said, I am normally pretty "chill" in nature and can remain flexible in most situations. I prefer to work on my own, but do enjoy teamwork when the situation calls for it.
+I can work in nearly any environment or condition for periods of time that would be considered inhuman to some. Most of my Air Force career was spent jammed into a flying metal tube for "intercontinental travel" amounts of time on a near daily basis. Checklists have an important place in my life and if there is not one in existence prior to me starting a process there will be one on that process when I am done. That being said, I am normally pretty "chill" in nature and can remain flexible in most situations. I prefer to work on my own, but do enjoy teamwork when the situation calls for it.
 
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
